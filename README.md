@@ -1,2 +1,2 @@
-# fanasic
-Hdjdjdmd wnenenf
+# Initial page
+
