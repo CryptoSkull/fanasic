@@ -1,3 +1,3 @@
 # О проекте
 
-Здесь будет описание 
+ 👉Have a question? Tap Help & feedback in the sidebar.
